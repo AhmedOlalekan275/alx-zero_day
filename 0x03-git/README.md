@@ -1,1 +1,1 @@
-coding is nice
+Schooling is interesting
